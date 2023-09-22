@@ -1,0 +1,4 @@
+- ☾ Hi, I’m Darartu!
+- ☾ I’m interested in coding, but I also love to read and write actual English lol
+- ☾ I’m currently learning Python
+- ☾ How to reach me: email (brunomusse16@gmail.com)
